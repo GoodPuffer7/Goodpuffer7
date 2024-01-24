@@ -10,4 +10,5 @@ ___
 
 *im ALMOZT olwayz afk soo whisper pls if u want somthenghhn*
 
-![Image alt](https://media.tenor.com/Mwzug9zxYh0AAAAi/nyan-cat-every-nyan.gif)
+![Image alt](https://media.tenor.com/q_OdlggtvpoAAAAi/animated-fire.gif)
+firefirefirefrirfirfrefirefirfriwfrjrgsjagsnhFISH.
