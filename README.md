@@ -9,3 +9,5 @@ ___
 **C+H** only FRIENDS. 
 
 *im ALMOZT olwayz afk soo whisper pls if u want somthenghhn*
+
+![Image alt](https://media.tenor.com/Mwzug9zxYh0AAAAi/nyan-cat-every-nyan.gif)
